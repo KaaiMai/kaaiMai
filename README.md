@@ -1,3 +1,4 @@
-![intro-1634059133](https://github.com/SorryLemon/SorryLemon/assets/120297366/19ef9256-9a6d-4949-a2b1-7682557097cd)
+
+![dd52531d2f7df05d550207c78fd108c0](https://github.com/MaiMeDev/SorryLemon/assets/120297366/12580c34-8bf7-4037-96fa-ef84f03dfc35)
 
 Yo 
