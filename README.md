@@ -1,3 +1,13 @@
-![icon](https://github.com/MaiMeDev/SorryLemon/assets/120297366/2a293c32-a757-4bb4-a97c-bdf08a11f969)
 
-Yo!
+
+More About Me 
+
+Favorite anime 1: Mysterious Girlfriend X
+
+Favorite anime 2: Call Of The Night 
+
+Favorite game: osu!
+
+
+
+
