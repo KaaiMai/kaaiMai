@@ -1,1 +1,1 @@
-![Lh4xfvb](https://github.com/kaaiMai/kaaiMai/assets/120297366/c45f144c-48ef-43eb-a0a0-cac051c9bdb2)
+![xxxHOLiC](https://github.com/kaaiMai/kaaiMai/assets/120297366/d2e7d9d7-ed47-4eb1-aeb2-7dd273766829)
