@@ -1,1 +1,3 @@
-![xxxHOLiC](https://github.com/kaaiMai/kaaiMai/assets/120297366/d2e7d9d7-ed47-4eb1-aeb2-7dd273766829)
+<p align="center">
+  <img src="https://github.com/kaaiMai/kaaiMai/assets/120297366/eea1ee12-be73-4555-ae89-51f869c2834d.jpg" alt="Your Alt Text">
+</p>
